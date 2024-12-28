@@ -8,11 +8,9 @@
 
 I love this symbol because it represents balance. The angel on one shoulder & the devil on the other is a popular illustration. Most people forget the point because they get lost in their own opinions of right & wrong. This is just a depiction of the duality that we see so many examples of in the world and inside of ourselves.
 
-There has to be a delicate balance between the two and it's important to remember the essential purpose of the yin AND the yang, respectively. We must be open-minded enough to look at it from an unbiased perspective and fully understand that there would be no such thing as good or bad without a means of comparison.
+There has to be a delicate balance between the two and it's important to remember the essential purpose of the yin AND the yang, respectively. We must be open-minded enough to look at it from an unbiased perspective and fully understand that there would be no such thing as good or bad without a means of comparison. The interdependece unites the opposing terms.
 
 These are part of who we are.
-
-Here is my theory: The devil is not a physical being who rules the underworld. It's simply the things that hold us back in life. Fear, worry, jealousy, self-doubt, and guilt are all examples of self-imposed limitations that hold us back from being who we were meant to be.
 
 This would mean that Evil is something we see in our reality as a result of fearing the unknown, worrying about what the future holds, being jealous of others, and doubting ourselves. So essentially, hell is a state of mind.
 
