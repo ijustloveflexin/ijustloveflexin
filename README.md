@@ -8,7 +8,9 @@
 
 I love this symbol because it represents balance. The angel on one shoulder & the devil on the other is a popular illustration. Most people forget the point because they get lost in their own opinions of right & wrong. This is just a depiction of the duality that we see so many examples of in the world and inside of ourselves.
 
-There has to be a delicate balance between the two and it's important to remember the essential purpose of the yin AND the yang, respectively. We must be open-minded enough to look at it from an unbiased perspective and fully understand that there would be no such thing as good or bad without a means of comparison. The interdependece unites the opposing terms.
+There has to be a delicate balance between the two and it's important to remember the essential purpose of the yin AND the yang, respectively. We must be open-minded enough to look at it from an unbiased perspective and fully understand that there would be no such thing as good or bad without a means of comparison. 
+The interdependece unites the polarities as two parts of a whole, just like heads and tails are two aspects of a coin.
+This theory regarding unity of opposites is a common ideal among non-dualist and dualist traditions including Tantric Hinduism and Buddhism, in German mysticism, Zoroastrianism, Taoism, Zen and Sufism.
 
 These are part of who we are.
 
