@@ -12,12 +12,10 @@ There has to be a delicate balance between the two and it's important to remembe
 The interdependece unites the polarities as two parts of a whole, just like heads and tails are two aspects of a coin.
 This theory regarding unity of opposites is a common ideal among non-dualist and dualist traditions including Tantric Hinduism and Buddhism, in German mysticism, Zoroastrianism, Taoism, Zen and Sufism.
 
-These are part of who we are.
+We are all connected through collective consciousness, which means good and evil is entangled within the universal mind. The Bible says, 
+I am the Alpha and the Omega the beginning and the end. I create well-being and calamity.
 
-This would mean that Evil is something we see in our reality as a result of fearing the unknown, worrying about what the future holds, being jealous of others, and doubting ourselves. So essentially, hell is a state of mind.
-
-It would also mean that the devil is God's alter-ego.
-the devil is god's alter-ego as a part of the law of ONE concept that defines reality. Regardless of the personal beliefs we hold as indivuals, there are undeniable truths to the law of ONE. We experience life as a singluar part of the universal consciousness; this suggests that separateness is an illusion. IDK about you but I like it like that. 
+It's all good - the union of opposites is part of the law of ONE concept that defines reality. Regardless of the personal beliefs we hold as indivuals, there are undeniable truths to the law of ONE. We experience life as a singluar part of the universal consciousness; this suggests that separateness is an illusion. IDK about you but I like it like that. 
 - 💞️ I’m looking to collaborate with coders, developers, graphic designers, mentors, video editors, analysts, music enthusiasts, journalists, independently registered journalists, publishers, marketing professionals, and legal advisors on an important project  
 - 📫 How to reach me 3364484522 
 - ⚡ Fun fact: i'm God and my goal is to show people in the the world today that it is totally possible to live the life of their dreams 
